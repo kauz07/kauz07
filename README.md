@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on nothing but soon will<br>🤝 I’m looking for any invites for your CS projects<br>🌱 I’m currently learning cybersecurity <br>💬 Ask me about my projects<br>⚡ Fun fact: Opportunity seeker here<br>📧 Shoot me a Mail
+🔭 I’m currently working on nothing but soon will<br>🤝 I’m looking for any invites for your CyberSecurity projects<br>🌱 I’m currently learning cybersecurity <br>💬 Ask me about my projects<br>⚡ Fun fact: Opportunity seeker here<br>📧 Shoot me a Mail
 
 
 ## 🌐 Socials:
