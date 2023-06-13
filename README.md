@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working IDS for a home network<br>🤝 I’m looking for any invites for your CyberSecurity projects<br>🌱 I’m currently learning cybersecurity <br>💬 Ask me about my projects<br>⚡ Fun fact: Opportunity seeker here<br>📧 Shoot me a Mail
+🔭 I’m currently working IDS for a home network<br>🤝 I’m looking for any invites for your CyberSecurity projects<br>🌱 I’m currently learning cybersecurity <br>💬 Ask me about my projects<br>⚡ Opportunity seeker <br>📧 Shoot me a Mail
 
 
 ## 🌐 Socials:
